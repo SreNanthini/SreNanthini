@@ -1,6 +1,6 @@
 👋 Hello, world! I’m Sre Nanthini
 
-🎓 B.Tech Computer science and engineering student | 💻 Future-ready developer | 🌱 Lifelong learner
+🎓 B.E Computer science and engineering student | 💻 Future-ready developer | 🌱 Lifelong learner
 
 ---
 

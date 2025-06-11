@@ -30,8 +30,8 @@
 ---
 
  📫 How to Reach Me
-- 🔗 LinkedIn: [www.linkedin.com/in/srenanthini)  
-- 📧 Email:nanthuvasu20@gmail.com
+- 🔗 LinkedIn: www.linkedin.com/in/srenanthini
+- 📧 Email:srenanthinivs@gmail.com 
 - 🔗 Discord: gryffindor_19
 ---
 
